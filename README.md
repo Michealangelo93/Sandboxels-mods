@@ -1,2 +1,0 @@
-# Sandboxels-mods
-My mods
